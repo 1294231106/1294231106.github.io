@@ -1,1 +1,1 @@
-[LZU](www.lzu.edu.cn)
+[LZU](http://www.lzu.edu.cn)
